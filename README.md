@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @massacred
 - 🌱 I’m currently learning Java
-- 📫 Reach me on discord - Massacred#7782
+- 📫 Reach me on discord - Massacred
